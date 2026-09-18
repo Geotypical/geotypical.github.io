@@ -1,0 +1,1 @@
+# Geotypical.github.io
